@@ -6,11 +6,11 @@ KAWAH ?? Website
 KAWAH ??
 - **Directory:** kawah_immo_kawah
 - **Address/Contact:** 
-  - Terrain en vente � partir de 800000F
-  - votre satisfaction est notre priorit� ??
+  - Terrain en vente é partir de 800000F
+  - votre satisfaction est notre priorité ??
   - 
   - ??: +225 0759747726
-  - ??: Bouak�
+  - ??: Bouaké
 - **Description:** 
 - **Social Media:** https://www.tiktok.com/@kawah_immo
 - **Logo Asset:** _To be sourced/created_
